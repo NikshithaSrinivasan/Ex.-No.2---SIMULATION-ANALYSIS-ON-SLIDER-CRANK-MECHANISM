@@ -45,7 +45,8 @@
 
 ## Output
 ![Screenshot 2024-12-03 163324](https://github.com/user-attachments/assets/22c70117-f47b-422e-98fd-a0ea5b7bc1bc)
-![Screenshot 2024-12-03 163459](https://github.com/user-attachments/assets/888b8f5d-1090-4e44-ae64-9a76fdbbabc9)
+![WhatsApp Image 2024-12-27 at 13 39 58_c82fe338](https://github.com/user-attachments/assets/dcb374bf-8a9a-4b55-aa05-c3ef63693e77)
+
 
 
 
